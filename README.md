@@ -1,1 +1,1 @@
-# chi-2025-human-centered-ai
+# Designed to Help!
